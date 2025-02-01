@@ -1,3 +1,4 @@
+![Virgin Australia Flight Cancellation Policy ](https://www.virginchangeflight.com/blogsimages/Call%20+61(1800)407-707%20for%20Virgin%20Australia%20Flight%20Cancellation%20Policy,%20Refund,%20and%20Compensation%20Details.webp)
 Travel plans can change unexpectedly, making it important to understand the Virgin Australia cancellation policy before booking. The airline allows passengers to cancel or modify their flights, but the eligibility for refunds and fees depends on the fare type and cancellation timing.
 
 Virgin Australia permits free cancellations within 24 hours of booking, provided the ticket was purchased at least seven days before departure. For refundable tickets, no cancellation fees apply, whereas non-refundable tickets may incur charges. If the airline cancels a flight, passengers are eligible for a full refund or free rebooking.
